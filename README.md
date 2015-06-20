@@ -16,3 +16,6 @@
 
 > First get out of the cafe, then follow 'main street' until you get to ...
 
+
+overview: https://www.youtube.com/watch?v=8hRhY1kNysY
+fat: https://www.youtube.com/watch?v=HjVktRd35G8
